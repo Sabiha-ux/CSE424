@@ -8,12 +8,8 @@ Paper title:
 
 LIGHT POLLUTION AFFECTS INVASIVE AND NATIVE PLANT TRAITS IMPORTANT TO PLANT COMPETITION AND HERBIVOROUS INSECTS
 
-
-
 Link to the paper: 
-
-
-
+https://drive.google.com/drive/folders/16C7f0_vgGZytzq0lptsxdR9K-blgpCO7
 
 Group Number:
 25
